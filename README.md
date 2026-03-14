@@ -1,0 +1,1 @@
+# Aplica-o-Desktop-de-Medi-o-e-Or-amento-de-Obras-com-OCR
